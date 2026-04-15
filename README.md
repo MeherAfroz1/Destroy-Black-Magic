@@ -4,7 +4,7 @@ A comprehensive, step-by-step guide to performing authentic Ruqyah (spiritual he
 
 ---
 
-## 🌟 What is Ruuqyah?
+## 🌟 What is Ruqyah?
 
 **Ruqyah (رُقية)** is the Islamic practice of reciting Quranic verses and authentic supplications to seek healing from spiritual and physical ailments. It is a Sunnah taught by Prophet Muhammad ﷺ and Angel Jibril (AS).
 
